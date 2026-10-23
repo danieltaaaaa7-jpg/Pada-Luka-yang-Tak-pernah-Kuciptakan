@@ -1,0 +1,1 @@
+# Pada-Luka-yang-Tak-pernah-Kuciptakan
